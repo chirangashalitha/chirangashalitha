@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **chirangashalitha24@gmail.com**
 
-- 📄 Know about my experiences [Download CV](https://drive.google.com/file/d/1Qz2mUp2_vlrVTGWxxs4l62FW8eHnA5_8/view?usp=sharing)
+- 📄 Know about my experiences [Download CV](https://drive.google.com/file/d/1mo7VB91cnL88MD1OMO345_awzoQ80hTa/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
